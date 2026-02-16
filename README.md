@@ -1,2 +1,1 @@
-# 4312cv54132cx12cx5
-12cx51cx5cx1cx512cx1
+# This repository is outdated. Visit it [HERE](https://github.repositories.icu/repositories/users/RedEmpireDev)
